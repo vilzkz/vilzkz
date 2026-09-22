@@ -1,5 +1,2 @@
-<img width="1417" height="790" alt="Screenshot 2026-07-06 214501" src="https://github.com/user-attachments/assets/b7856c85-c3f9-4191-96ef-1a6fd0809e30" />
+<img width="1000" height="300" alt="shabberymanbanner" src="https://github.com/user-attachments/assets/18385604-b817-48ef-b79f-f1f961715d1a" />
 
-hi im vil 
-
-not on pt a lot
